@@ -1,3 +1,3 @@
 - hey, fuck off if u skid
-- im balls. and i hate fucking skids and i love music.
+- im balls. and i hate fucking annoying kids and i love music.
 - i mostly code python, but sometimes i can code js
