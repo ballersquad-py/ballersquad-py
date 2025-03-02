@@ -1,2 +1,3 @@
-- im balls. and i hate fucking annoying kids and i love music.
-- i mostly code python, but sometimes i can code js
+- sieg heil
+- live in bangladesh
+- Sex with rajesh
